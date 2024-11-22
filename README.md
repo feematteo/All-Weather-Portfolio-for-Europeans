@@ -27,3 +27,4 @@ nuova superpotenza economica.
 
 
 Idea presa e rielaborata da Pietro Michelangeli, Tesi triennale di Gaia De Mare
+Anno Accademico 2023-2024 
